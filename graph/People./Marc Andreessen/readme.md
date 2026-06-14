@@ -1,0 +1,1 @@
+- [Marc Andreessen is friends with AI Vampires](https://youtu.be/vbW_Ir6WopA)
