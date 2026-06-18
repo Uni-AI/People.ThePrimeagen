@@ -1,0 +1,1 @@
+- [Industry Wide AI Psychosis](https://youtu.be/zdXsGF1hiZk)
